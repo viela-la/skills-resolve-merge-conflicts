@@ -1,1 +1,6 @@
-me when i'm conflicted:
+me when i'm evil:
+
+# References
+
+* octocat 1 😈
+
